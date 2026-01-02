@@ -13,7 +13,7 @@
                               i will block if unconfortable.
                               c + h only if fandom.
 
-                     im usually sitting next to the dc/dispatch area by the bakery, sometimes docks.
+                        safe server only - usually next to the dc/dispatch area by the bakery, sometimes docks.
 
 
 
