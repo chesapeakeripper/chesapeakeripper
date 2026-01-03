@@ -30,6 +30,8 @@
           sometimes docks.
               
 
+![030f6e1c63db02355d634d14e6c477d3](https://github.com/user-attachments/assets/c3a62d1d-fa66-475f-a576-2ba15be0e479)
+
  
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=chesapeakeripper&color=800000&label=Victims)
 
