@@ -41,7 +41,12 @@
 ![030f6e1c63db02355d634d14e6c477d3](https://github.com/user-attachments/assets/c3a62d1d-fa66-475f-a576-2ba15be0e479)
 
  
+
+<img width="105" height="19" alt="Captura de tela 2026-01-03 150756" src="https://github.com/user-attachments/assets/bfa13a85-91bc-4907-ac8a-3b2fa3347553" /><img width="105" height="19" alt="Captura de tela 2026-01-03 150756" src="https://github.com/user-attachments/assets/805669c4-bfb6-4cdd-8cca-4927b6946305" />
+<img width="105" height="19" alt="Captura de tela 2026-01-03 150756" src="https://github.com/user-attachments/assets/1c49ae6f-82fe-4bd8-a6e6-4d68adb61a4c" />
 ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=chesapeakeripper&color=800000&label=Victims)
+
+
 
 
 
