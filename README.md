@@ -12,7 +12,8 @@
                 dont ask me to join a party or rp/regi.
                 i will block if uncomfortable.
                 c + h only if fandom.
-        -  safe server only - usually next to the dc/dispatch area by the bakery, sometimes docks.
+        -  safe server only - usually next to the dc/dispatch area by the bakery, 
+        sometimes docks.
               
                               ꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰
                                       
