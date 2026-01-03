@@ -29,8 +29,8 @@
 
 
 
-                  fandoms: hannibal, fallout, horror, black mirror, house md, IT.
-                  DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
+              fandoms: hannibal, fallout, horror, black mirror, house md, IT.
+              DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
                            
                               
 
