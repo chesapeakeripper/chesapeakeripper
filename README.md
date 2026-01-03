@@ -26,7 +26,7 @@
 
                                     #1 Alana Bloom/Clarice Starling defender 
                                     fandoms: hannibal, fallout, horror, black mirror, house md, IT.
-                                    DNI: forsaken, helluva/hazbin, tadc, tpot/object shows.
+                                    DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
                            
                               
 
