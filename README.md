@@ -12,7 +12,7 @@
                               - I let you know me. See me. I gave you a rare gift, but you didn't want it.
                                      
 
-                        hi! im a fellow fannibal/vaultie. you can adress me as ellxe, i use she/her prounouns.
+                                                hi! im ellxe, i use she/her prounouns.
                               
                               whisper to interact, im usually offtab or afk.
                               do not cover and do not strongly copy my ponies.
@@ -29,7 +29,6 @@
 
 
 
-                                    #1 Alana Bloom/Clarice Starling defender 
                                     fandoms: hannibal, fallout, horror, black mirror, house md, IT.
                                     DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
                            
@@ -60,6 +59,15 @@
 
 
 <img width="1007" height="54" alt="image" src="https://github.com/user-attachments/assets/0aea3788-27a4-44a7-9908-8f9c45d9ae0f" />
+
+stamps n blinkies >
+
+![deviantart-977853424-CARNIVORE-blinkie-F2-U](https://github.com/user-attachments/assets/c912c7a0-c5f5-44be-ad5d-4ff25955ffab)![deviantart-967654926-Horror-fan-blinkie](https://github.com/user-attachments/assets/336500e0-907c-4aee-a21c-a19e8301cd03)![friday](https://github.com/user-attachments/assets/9de775af-28cb-4522-8a70-091e27fbbb6c)![hypblinkie](https://github.com/user-attachments/assets/b90bb9e7-cd44-492e-991a-357d0b6e4d28)![4da948f05bde6808cd812cb550965390a45eb265](https://github.com/user-attachments/assets/fa5f0b2f-03e4-4eea-b351-0002d5a03b39)![c9164aedfd5c17c207280f4aee6436a5b280dd09](https://github.com/user-attachments/assets/d10d1bf3-b02e-4399-b46d-04629f6e5ed5)![84375627-ph-A](https://github.com/user-attachments/assets/5e5009e8-d181-4e3d-bae0-e55f9ad90d00)![78806255-Git-Sksiym-IMCAJC](https://github.com/user-attachments/assets/9c136281-078e-48e5-96ea-2d096d7b03ff)
+
+
+
+
+
 
 
 
