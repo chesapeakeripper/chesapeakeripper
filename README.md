@@ -17,6 +17,7 @@
                               whisper to interact, im usually offtab or afk.
                               do not cover and do not strongly copy my ponies.
                               dont ask me to join a party or rp/regi.
+                              dont ask personal questions.
                               iwc. i will block if uncomfortable.
                               c + h only if fandom.
                      -  safe server only - usually next to the dc/dispatch area by the bakery, 
