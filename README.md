@@ -23,7 +23,8 @@
                      sometimes docks.
               
   ![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=chesapeakeripper&color=800000&label=Victims) 
-                                      
+
+                                    #1 Alana Bloom/Clarice Starling defender 
                                     fandoms: hannibal, fallout, horror, black mirror, house md, IT.
                                     DNI: forsaken, helluva/hazbin, tadc, tpot/object shows.
                            
