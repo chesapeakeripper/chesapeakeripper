@@ -9,7 +9,11 @@
 ![hypblinkie](https://github.com/user-attachments/assets/3045a82c-32c7-43c6-af0b-7c9414627809)![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/ab3db223-2c3d-4758-8abc-6a4ba997cef2)![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/8e64ed34-185b-4360-ae0c-b00240c44746)![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/8e64ed34-185b-4360-ae0c-b00240c44746)
 
                              
-              - I let you know me. See me. I gave you a rare gift, but you didn't want it.
+             
+ ![tumblr_f349a7cbd231bd04145fd50aab22eaca_a8317198_75](https://github.com/user-attachments/assets/ae28ff7a-0960-498d-aeac-f02316aeedce)-  I let you know me. See me. I gave you a rare gift, but you didn't want it.![tumblr_f349a7cbd231bd04145fd50aab22eaca_a8317198_75](https://github.com/user-attachments/assets/76920d76-9ff9-4db3-91d0-4c0b88ccad73)
+
+
+
                                      
 
                                     hi! im ellxe, i use she/her prounouns.
