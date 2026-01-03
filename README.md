@@ -21,9 +21,9 @@
                            
                                     ꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰꒷꒦⋅⏝⋅꒷꒦⏝꒷꒦⋅⏝꒷۰
 
-![deviantart-977853424-CARNIVORE-blinkie-F2-U](https://github.com/user-attachments/assets/cb44aa72-f063-4e6e-b150-0701277f2cf3)![hypblinkie](https://github.com/user-attachments/assets/3045a82c-32c7-43c6-af0b-7c9414627809)
+![hypblinkie](https://github.com/user-attachments/assets/3045a82c-32c7-43c6-af0b-7c9414627809)
 ![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/ab3db223-2c3d-4758-8abc-6a4ba997cef2)
-![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/8e64ed34-185b-4360-ae0c-b00240c44746)![friday](https://github.com/user-attachments/assets/c66ea09c-c4f0-4b54-8316-c6c3b04bcf0f)
+![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/8e64ed34-185b-4360-ae0c-b00240c44746)
 
 
 
