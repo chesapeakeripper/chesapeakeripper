@@ -26,13 +26,13 @@
                   
                   do not cover and do not strongly copy my ponies.
                   
-                  dont ask me to join a party or rp/regi.
-                  
                   dont ask personal questions.
                   
                   iwc. i will block if uncomfortable.
                   
                   c + h only if fandom. 
+
+                  DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
                   
           -  safe server only - usually next to the dc/dispatch area by the bakery, 
           sometimes docks.
@@ -46,10 +46,18 @@
 
 
 
+         
+
+<img width="695" height="367" alt="image" src="https://github.com/user-attachments/assets/8777b231-9567-4485-98f5-ab638687d4d1" /><img width="99" height="56" alt="411244578-d0f24267-9273-47ab-9a35-17c5278445b9" src="https://github.com/user-attachments/assets/10b5f7e0-19a7-435e-b5c5-377e2d36f1bb" /><img width="99" height="56" alt="516930196-3a0a4f35-442e-4f23-911e-145440de8025" src="https://github.com/user-attachments/assets/92c4dd97-2b2c-443d-910c-22599f3ff6d5" />
+
+
+
+
+
 
               fandoms: hannibal, fallout, horror, black mirror, house md, IT.
               
-              DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
+              
                            
 
 
