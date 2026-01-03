@@ -18,14 +18,22 @@
 
                                      
 
-                                    hi! im ellxe, i use she/her prounouns.
-            ╰┈➤               
+ hi! im ellxe, i use she/her prounouns.
+ 
+            ╰┈➤      
+            
                   whisper to interact, im usually offtab or afk.
+                  
                   do not cover and do not strongly copy my ponies.
+                  
                   dont ask me to join a party or rp/regi.
+                  
                   dont ask personal questions.
+                  
                   iwc. i will block if uncomfortable.
-                  c + h only if fandom.
+                  
+                  c + h only if fandom. 
+                  
           -  safe server only - usually next to the dc/dispatch area by the bakery, 
           sometimes docks.
               
@@ -39,6 +47,7 @@
 
 
               fandoms: hannibal, fallout, horror, black mirror, house md, IT.
+              
               DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
                            
                               
@@ -68,7 +77,9 @@
 
 
 
-<img width="1007" height="54" alt="image" src="https://github.com/user-attachments/assets/0aea3788-27a4-44a7-9908-8f9c45d9ae0f" />
+
+
+
 
 
 
