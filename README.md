@@ -69,7 +69,7 @@
 
 
 
-              fandoms: hannibal, fallout, horror, black mirror, house md, IT, arcane, scream, pluribus.
+              fandoms: hannibal, fallout, black mirror, house md, IT, arcane, scream, pluribus.
               
               
                            
