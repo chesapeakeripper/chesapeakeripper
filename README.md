@@ -28,7 +28,7 @@
                   
                   dont ask personal questions.
 
-                  if you talk to me like you know me, i might not respond nicely. im not good with remembering people.
+                  im not good with remembering names, please tell me who you are or i might not answer nicely.
                   
                   iwc. i will block if uncomfortable.
                   
