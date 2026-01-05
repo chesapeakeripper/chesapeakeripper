@@ -70,7 +70,7 @@
 
 
               fandoms: hannibal, fallout, black mirror, house md, IT, arcane, scream, pluribus.
-              kins: rory gilmore,
+              kins: rory gilmore, stephanie harper,
               
               
                            
