@@ -27,6 +27,8 @@
                   do not cover and do not strongly copy my ponies.
                   
                   dont ask personal questions.
+
+                  if you talk to me like you know me, i might not respond nicely. im not good with remembering people.
                   
                   iwc. i will block if uncomfortable.
                   
