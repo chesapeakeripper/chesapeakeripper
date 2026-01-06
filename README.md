@@ -28,6 +28,8 @@
                   
                   dont ask personal questions.
 
+                  i am an atheist and get unconfortable if you start talking about religion.
+
                   im not good with remembering names, please tell me who you are or i might not answer nicely.
                   
                   iwc. i will block if uncomfortable.
