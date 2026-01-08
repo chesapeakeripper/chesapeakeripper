@@ -16,6 +16,10 @@
 
 
 
+
+
+
+
                                      
 
  hi! im ellxe, i use she/her prounouns. im a cishet ally.
