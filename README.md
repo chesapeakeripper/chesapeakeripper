@@ -40,7 +40,7 @@
                   
                   c + h only if fandom. 
 
-                  DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows.
+                  DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows. 18+ iwec.
                   
           -  safe server only - usually next to the dc/dispatch area by the bakery, 
           sometimes docks.
