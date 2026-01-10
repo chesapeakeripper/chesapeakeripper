@@ -79,6 +79,7 @@
 
 
               fandoms: hannibal, fallout, black mirror, house md, IT, arcane, scream, pluribus.
+                               ^-- if u like fallout, hannibal or pluribus pls pls pls pls INT (=
               kins: rory gilmore, stephanie harper,
               
               
