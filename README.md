@@ -30,7 +30,7 @@
                   
                   do not cover and do not strongly copy my ponies.
                   
-                  dont ask personal questions or say romantic things/flirt. im a minor.
+                  dont ask personal questions or say romantic things/flirt.
 
                   i am an atheist and get uncomfortable if you start talking about religion.
 
