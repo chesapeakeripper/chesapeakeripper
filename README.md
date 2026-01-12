@@ -32,8 +32,6 @@
                   
                   dont ask personal questions or say romantic things/flirt.
 
-                  i am an atheist and get uncomfortable if you start talking about religion.
-
                   im not good with remembering names, please tell me who you are or i might not answer nicely.
                   
                   iwc. i will block if uncomfortable.
