@@ -38,7 +38,7 @@
                   
                   c + h only if fandom. 
 
-                  DNI: conservatives, MAGA, forsaken, helluva/hazbin, tadc, tpot/object shows. 18+ iwec.
+                  DNI: conservatives, MAGA, nazis, racists, homo/trans/queer phobes, 18+ iwec. also dni if you're gonna vent, agere or stuff like that.
                   
           -  safe server only - usually next to the dc/dispatch area by the bakery, 
           sometimes docks.
