@@ -1,16 +1,6 @@
 
 
-<img width="797" height="560" alt="image" src="https://github.com/user-attachments/assets/ef63f006-5aa0-44cb-aa6a-788697175880" />
-
-
-
-
-
-
-                             
-
-
-   ![tumblr_f349a7cbd231bd04145fd50aab22eaca_a8317198_75](https://github.com/user-attachments/assets/ae28ff7a-0960-498d-aeac-f02316aeedce) - I let you know me. See me. I gave you a rare gift, but you didn't want it. ![tumblr_f349a7cbd231bd04145fd50aab22eaca_a8317198_75](https://github.com/user-attachments/assets/76920d76-9ff9-4db3-91d0-4c0b88ccad73)
+<img width="797" height="560" alt="image" src="https://github.com/user-attachments/assets/ef63f006-5aa0-44cb-aa6a-788697175880" />![tumblr_f349a7cbd231bd04145fd50aab22eaca_a8317198_75](https://github.com/user-attachments/assets/ae28ff7a-0960-498d-aeac-f02316aeedce) - I let you know me. See me. I gave you a rare gift, but you didn't want it. ![tumblr_f349a7cbd231bd04145fd50aab22eaca_a8317198_75](https://github.com/user-attachments/assets/76920d76-9ff9-4db3-91d0-4c0b88ccad73)
 
 
 
