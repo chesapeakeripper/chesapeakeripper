@@ -22,7 +22,7 @@
 
                                      
 
- hi! im ellxe, i use she/her prounouns. im a cishet ally.
+ hi! im ellxe/rory. i use she/her prounouns. im a cishet ally.
  
             ╰┈➤      
             
