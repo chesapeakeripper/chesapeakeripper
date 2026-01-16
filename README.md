@@ -28,15 +28,13 @@
             
                   whisper to interact, im usually offtab or afk.
                   
-                  do not cover and do not strongly copy my ponies.
-                  
                   dont ask personal questions or say romantic things/flirt.
 
                   im not good with remembering names, please tell me who you are or i might not answer nicely.
                   
                   iwc. i will block if uncomfortable.
                   
-                  c + h only if fandom. 
+                  c + h only if fandom. also do not cover, not even the slightest bit (unless c + h) at all times.
 
                   DNI: conservatives, MAGA, nazis, racists, homophobes, 18+ iwec. also dni if you're gonna vent, agere, etc
                   
