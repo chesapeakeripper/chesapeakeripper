@@ -16,17 +16,17 @@
  
             ╰┈➤      
             
-                  whisper to interact, im usually offtab or afk.
-                  
-                  dont ask personal questions or say romantic things/flirt.
+                  whisper to interact, im usually offtab or afk. i do respond quickly tho!
 
                   im not good with remembering names, please tell me who you are or i might not answer nicely.
                   
                   iwc. i will block if uncomfortable.
                   
-                  c + h only if fandom. also do not cover, not even the slightest bit (unless c + h) at all times.
+                  c + h only if fandom. also do not cover unless you're c + h.
 
                   DNI: conservatives, MAGA, nazis, racists, homophobes, 18+ iwec. also dni if you're gonna vent, agere, etc
+
+                  please check prounouns.cc for more info! thank you.
                   
           -  safe server only - usually next to the dc/dispatch area by the bakery, 
           sometimes docks.
