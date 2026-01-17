@@ -31,7 +31,7 @@
           -  safe server only - usually next to the dc/dispatch area by the bakery, 
           sometimes docks.
 
-          -----------------------------------------------------------------------------------------------------------------
+-------------------------------------------------------------------------------------------------------------------------------------------------------------
           fandoms: hannibal, fallout, black mirror, pluribus, IT, arcane, scream, house md.
                                ^ if u like the first four pls pls pls INT !!
               kins: rory gilmore, stephanie harper,
