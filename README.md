@@ -13,11 +13,12 @@
                                      
 
  hey guys, it's true, I quit
+ 
  Prince, Kyle and all my fallout friends please keep me updated on my pinterest
  
-I might come back in a few months but dont count on it
+I will come back for April 4th and I hope my experience isn't terrible so I can come back definitely 
 
-pony town was really just an experiment and I realised that i shouldnt be on social platforms and that people really are so out of touch these days. thank you to everyone who was kind. by the way multiple people made me quit, not only one.
+pony town was really just an experiment and I realised that no one should really be on social platforms and that people really are so out of touch these days. thank you to everyone who was kind. by the way multiple people made me quit, not only one.
 
 thank you for reading this!
               
