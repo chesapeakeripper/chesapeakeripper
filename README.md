@@ -18,6 +18,8 @@
  
 I will come back for April 4th and I hope my experience isn't terrible so I can come back definitely 
 
+please dont unfriend me if you care
+
 pony town was really just an experiment and I realised that social platforms are dangerous and that people really are so out of touch these days. thank you to everyone who was kind. by the way multiple people made me quit, not only one.
 
 thank you for reading this!
