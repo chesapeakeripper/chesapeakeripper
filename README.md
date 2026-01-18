@@ -16,11 +16,11 @@
  
  Prince, Kyle and all my fallout friends please keep me updated on my pinterest
  
-I will come back for April 4th and I hope my experience isn't terrible so I can come back definitely 
+I will probably come back for April 4th and I hope my experience isn't terrible so I can come back definitely 
 
 please dont unfriend me if you care
 
-pony town was really just an experiment and I realised that social platforms are not for me and that people really are so out of touch these days. thank you to everyone who was kind. by the way multiple people made me quit, not only one.
+pony town was really just an experiment and I realised that social platforms are not for me and that people really are so out of touch these days. thank you to everyone who was kind.
 
 thank you for reading this!
               
