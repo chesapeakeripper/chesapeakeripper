@@ -24,7 +24,7 @@
                   
                   c + h only if fandom. also do not cover unless you're c + h.
 
-                  DNI: conservatives, MAGA, nazis, racists, homophobes, 18+ iwec. also dni if you're gonna vent, agere, etc
+                  DNI: conservatives, MAGA, nazis, racists, homophobes, 18+ iwec.
 
                   please check prounouns.cc for more info! thank you.
                   
