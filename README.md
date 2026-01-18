@@ -12,33 +12,17 @@
 
                                      
 
- hi! im ellxe/rory. i use she/her prounouns. im a cishet ally.
+ hey guys, it's true, I quit
+ Prince, Kyle and all my fallout friends please keep me updated on my pinterest
  
-            ╰┈➤      
-            
-                  whisper to interact, im usually offtab or afk. i do respond quickly tho!
+I might come back in a few months but dont count on it
 
-                  im not good with remembering names, please tell me who you are or i might not answer nicely.
-                  
-                  iwc. i will block if uncomfortable.
-                  
-                  c + h only if fandom. also do not cover unless you're c + h.
+pony town was really just an experiment and I realised that i shouldnt be on social platforms and that people really are so out of touch these days. thank you to everyone who was kind. by the way multiple people made me quit, not only one.
 
-                  DNI: conservatives, MAGA, nazis, racists, homophobes, 18+ iwec.
-
-                  please check prounouns.cc for more info! thank you.
-                  
-          -  safe server only - usually next to the dc/dispatch area by the bakery, 
-          sometimes docks.
-
--------------------------------------------------------------------------------------------------------------------------------------------------------------
-          fandoms: hannibal, fallout, black mirror, pluribus, IT, arcane, scream, house md.
-                               ^ if u like the first four pls pls pls INT !!
-              kins: rory gilmore, stephanie harper,
-              
+thank you for reading this!
               
 
-![531636550-c3a62d1d-fa66-475f-a576-2ba15be0e479](https://github.com/user-attachments/assets/02a26ed0-5205-4b50-9f80-2680ae20c1ef)
+![531636550-c3a62d1d-fa66-475f-a576-2ba15be0e479](https://github.coer-attachments/assets/02a26ed0-5205-4b50-9f80-2680ae20c1ef)
 
 
  
