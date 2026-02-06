@@ -9,20 +9,9 @@
 
 ---------------------------------------------------------------------------------------------------------------------------------------------
 
-
-                                     
-
- hey guys, it's true, I quit
- 
- Prince, Kyle and all my fallout friends please keep me updated on my pinterest
- 
-I will maybe come back for April 4th (maybe the end of the break?) 
-
-please dont unfriend me if you care
-
-pony town was really just an experiment and I realised that social platforms are not for me. thank you to everyone who was kind.
-
-thank you for reading this!
+on break !
+will come back april 4th (=
+school is tiring /:
               
 
 ![531636550-c3a62d1d-fa66-475f-a576-2ba15be0e479](https://github.coer-attachments/assets/02a26ed0-5205-4b50-9f80-2680ae20c1ef)
