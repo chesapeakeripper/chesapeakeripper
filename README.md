@@ -18,7 +18,7 @@
     dni: anyone with hateful ideologies, ICE supporters, uhh if youre in my friends dni then youre in mine but 
     overall just dont be weird / proship and stuff like that iwec
 
-    if you go around guessing my age and saying you dont want to interact anymore,                                                     ive heard this so many times i actually dont care. dont interact if you dont want to dude.
+    im not saying my age online and if you dont want to interact because of that dont, im not debating that anymore.
 
     sorry if im randomly mean if i don't know you ,, im not good with remembering people overall
 
