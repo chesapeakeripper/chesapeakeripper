@@ -8,7 +8,7 @@
 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------
-  hi! im ellxe or scoliosis, i use she/her pronouns and im a minor (do not groom)                                                              
+  hi! im ellxe or scoliosis, i use she/her pronouns and im a minor (DO NOT GROOM)                                                              
     w2i always, im usually offtab or afk
 
     hannibal fandom interact with extreme care, especially shippers
