@@ -11,7 +11,11 @@
 
     w2i always, im usually offtab or afk
 
-    dont copy my ponies 
+    hannibal fandom interact with extreme care, especially hannigram shippers
+
+    other fandoms please interact ^ ^
+
+    dont copy my ponies or do (but credit) idec
 
 
  
