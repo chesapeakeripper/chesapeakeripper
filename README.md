@@ -15,11 +15,10 @@
 
     other fandoms please interact ^ ^
 
-    dni: anyone with hateful ideologies, ICE supporters,
+    dni: anyone with hateful ideologies, ICE supporters, uhh if youre in my friends dni then youre in mine but 
+    overall just dont be weird
 
     dont copy my ponies or do (with credit) idec
-
-    please dont be weird or else ill block you
 
     c+h only if fandom or friend (:
 
