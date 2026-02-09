@@ -15,6 +15,8 @@
 
     other fandoms please interact ^ ^
 
+    dni: anyone with hateful ideologies, ICE supporters,
+
     dont copy my ponies or do (with credit) idec
 
     please dont be weird or else ill block you
