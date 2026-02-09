@@ -53,7 +53,7 @@
 
 
 fandoms-> hannibal, fallout, severance, black mirror, pluribus, house md, escape triassic hall
-
+hobbies-> drawing, collecting, watching movies & tv shows
 kins-> rory gilmore, stephanie harper
 
 
