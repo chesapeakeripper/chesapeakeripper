@@ -19,6 +19,8 @@
 
     please dont be weird or else ill block you
 
+    c+h only if fandom or friend (:
+
 
  
 
