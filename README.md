@@ -9,18 +9,9 @@
 
 ---------------------------------------------------------------------------------------------------------------------------------------------
 
-on break !
+    w2i always, im usually offtab or afk
 
-will come back april 4th (=
-
-school is tiring /:
-
-ill be updating this while im off guys dw
-
-flowkenuienly will be on a dni/iwec fandom when i come back so be warned
-              
-09/02/26 - nooo dragon con got delayed ):
-
+    dont copy my ponies 
 
 
  
