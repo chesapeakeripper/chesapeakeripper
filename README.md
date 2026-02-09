@@ -22,6 +22,8 @@
 
     sorry if im randomly mean if i don't know you ,, im not good with remembering people overall
 
+    i can speak portuguese, english, italian and spanish basically fluently and i wont be using translators
+
     dont copy my ponies or do (with credit) idec
 
     c+h only if fandom or friend (:
