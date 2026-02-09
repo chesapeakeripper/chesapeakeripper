@@ -8,7 +8,7 @@
 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------
-
+  hi! im ellxe or scoliosis, i use she/her pronouns and im a minor (do not groom)
     w2i always, im usually offtab or afk
 
     hannibal fandom interact with extreme care, especially shippers
@@ -17,6 +17,8 @@
 
     dni: anyone with hateful ideologies, ICE supporters, uhh if youre in my friends dni then youre in mine but 
     overall just dont be weird and proship and stuff like that iwec
+
+    sorry if im randomly mean if i don't know you ,, im not good with remembering people overall
 
     dont copy my ponies or do (with credit) idec
 
