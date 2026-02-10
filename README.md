@@ -19,7 +19,7 @@
 
     im kinda apathic so i have to ask you to not vent unless youre close, because i really dont care.
 
-    dont copy my ponies or do (with credit) idec
+    dont copy my ponies or do (with credit) idrc
 
     c+h only if fandom or friend (:
 
