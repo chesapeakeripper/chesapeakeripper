@@ -50,6 +50,7 @@
 
 fandoms-> hannibal, fallout, severance, black mirror, pluribus, house md, escape triassic hall
 hobbies-> drawing, collecting, watching movies & tv shows
+
 kins-> rory gilmore, stephanie harper
 
 <img width="733" height="143" alt="Captura de tela 2026-02-09 192216" src="https://github.com/user-attachments/assets/fa462968-4a90-4475-9632-c9b0ee82c411" />
