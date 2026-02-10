@@ -13,8 +13,7 @@
 
     hannibal fandom interact with extreme care, especially shippers
 
-    dni: anyone with hateful ideologies, ICE supporters, uhh if youre in my friends dni then youre in mine but 
-    overall just dont be weird / proship and stuff like that iwec
+    dni: anyone with hateful ideologies, racists, homophobes
 
     im not saying my age online and if you dont want to interact because of that dont, im not debating that anymore.
 
