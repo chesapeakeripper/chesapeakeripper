@@ -15,8 +15,6 @@
 
     dni: anyone with hateful ideologies, racists, homophobes
 
-    im not saying my age online and if you dont want to interact because of that dont, im not debating that anymore.
-
     im kinda apathic so i have to ask you to not vent unless youre close, because i really dont care.
 
     dont copy my ponies or do (with credit) idrc
