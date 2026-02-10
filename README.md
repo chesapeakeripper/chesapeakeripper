@@ -11,16 +11,14 @@
   hi! im ellxe or scoliosis, i use she/her pronouns and im a minor (DO NOT GROOM)                                                              
     w2i always, im usually offtab or afk
 
-    hannibal fandom interact with extreme care, especially shippers
-
-    other fandoms please interact ^ ^
+    hannibal fandom interact with extreme care, especially shipperS
 
     dni: anyone with hateful ideologies, ICE supporters, uhh if youre in my friends dni then youre in mine but 
     overall just dont be weird / proship and stuff like that iwec
 
     im not saying my age online and if you dont want to interact because of that dont, im not debating that anymore.
 
-    sorry if im randomly mean if i don't know you ,, im not good with remembering people overall
+    im kinda apathic so i have to ask you to not vent unless youre close, because i really dont care.
 
     i can speak portuguese, english, italian and spanish basically fluently and i wont be using translators
 
