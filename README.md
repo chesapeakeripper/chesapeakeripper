@@ -15,7 +15,7 @@
 
     dni: anyone with hateful ideologies, racists, homophobes
 
-    im kinda apathic so i have to ask you to not vent unless youre close, because i really dont care.
+    im a bit apathic so i have to ask you to not vent unless youre close because i don't know how to answer
 
     dont copy my ponies or do (with credit) idrc
 
