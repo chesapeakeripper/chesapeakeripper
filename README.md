@@ -19,9 +19,9 @@
 
     im a bit apathic so i have to ask you to not vent unless youre close because i don't know how to answer
 
-    dont copy my ponies or do (with credit) idrc
+    dont copy my ponies or take inspo! (who even would do that)
 
-    c+h only if fandom or friend (:
+    c+h only if fandom or friend !!
 
 
  
