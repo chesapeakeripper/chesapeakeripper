@@ -19,7 +19,7 @@
 
     c+h only if fandom or friend !!
 
-    ------------------------------------------------------------DNI list---------------------------------------------------------------------
+    ------------------------------------------------DNI list--------------------------------------------------------
     1. anyone with hateful ideologies: racists, homophobes, xenophobes
     2. pro/dark shippers
     3. hazbin/helluva fans (friends r ok)
