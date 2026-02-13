@@ -13,6 +13,8 @@
 
     hannibal fandom interact with extreme care, especially shippers
 
+    other fandoms pls interact =)
+
     dni: anyone with hateful ideologies, racists, homophobes
 
     im a bit apathic so i have to ask you to not vent unless youre close because i don't know how to answer
