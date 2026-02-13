@@ -24,7 +24,7 @@
     2. pro/dark shippers
     3. hazbin/helluva fans (friends r ok)
     4. maga/trump/ICE supporters
-    5.(people i dont want to/dont know how to int with) agere, pet regressors, ppl who vent all the time
+    5. (people i dont want to/dont know how to int with) agere, pet regressors, ppl who vent all the time
 
 
  
