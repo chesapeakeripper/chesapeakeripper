@@ -15,13 +15,16 @@
 
     other fandoms pls interact =)
 
-    dni: anyone with hateful ideologies, racists, homophobes
-
-    im a bit apathic so i have to ask you to not vent unless youre close because i don't know how to answer
-
     dont copy my ponies or take inspo! (who even would do that)
 
     c+h only if fandom or friend !!
+
+    ------------------------------------------------------------DNI list---------------------------------------------------------------------
+    1. anyone with hateful ideologies: racists, homophobes, xenophobes
+    2. pro/dark shippers
+    3. hazbin/helluva fans (friends r ok)
+    4. maga/trump/ICE supporters
+    5.(people i dont want to/dont know how to int with) agere, pet regressors, ppl who vent all the time
 
 
  
