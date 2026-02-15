@@ -24,7 +24,6 @@
     2. pro/dark shippers
     3. hazbin/helluva fans (friends r ok)
     4. maga/trump/ICE supporters
-    5. (people i dont want to/dont know how to int with) agere, pet regressors, ppl who vent all the time
     if you're on this list and try to continuedly talk to me i will block you temporarely. or permanently if 
     you're really annoying.
 
