@@ -8,7 +8,7 @@
 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------
-  hi! im rory, i use she/her pronouns and im a minor (DO NOT GROOM) (ADULTS IWC)                                                             
+  hi! im rory, im a cishet woman, brazilian and a minor (DO NOT GROOM) (ADULTS IWC)                                                             
     w2i always, im usually offtab or afk
 
     hannibal fandom interact with extreme care, especially shippers
