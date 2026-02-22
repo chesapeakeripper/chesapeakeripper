@@ -52,7 +52,7 @@
 <img width="99" height="55" alt="531645293-c306d90d-969d-493e-88f0-c83fc7672507" src="https://github.com/user-attachments/assets/c86dddb3-239b-48b8-96f0-75e0197f4070" /><img width="105" height="60" alt="534098258-ea6f3bfb-5c9d-42ef-becf-665ca5907143" src="https://github.com/user-attachments/assets/b39c4d22-f131-4efa-9569-ab1957e00096" /><img width="99" height="55" alt="531645293-c306d90d-969d-493e-88f0-c83fc7672507" src="https://github.com/user-attachments/assets/0bb2b493-1adf-43fb-85be-a1fccdd0ed2d" />![dbjqasj-68b198de-25e1-4bf6-871b-c1b8c3f18f7c](https://github.com/user-attachments/assets/3a7a5c38-ba97-4c19-8dd4-03460ddf8257)
 
 
-fandoms-> hannibal, fallout, severance, black mirror, pluribus, house md, escape triassic hall
+fandoms-> hannibal, fallout, severance, black mirror, pluribus, house md, escape triassic hall, inglorious basterds, truman show
 
 hobbies-> drawing, collecting, watching movies & tv shows
 
