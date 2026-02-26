@@ -19,6 +19,8 @@
 
     c+h only if fandom or friend !!
 
+    btw sorry if ive like ,, never been online anymore, i have a reallyyyy rough schedule
+
     ------------------------------------------------DNI list--------------------------------------------------------
     1. anyone with hateful ideologies: racists, homophobes, xenophobes
     2. pro/dark shippers
