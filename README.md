@@ -8,12 +8,9 @@
 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------
-  hi! im rory, im brazilian and a minor (DO NOT GROOM) (ADULTS IWC)                                                             
+  hi! im rory, im brazilian and a minor (DO NOT GROOM) (ADULTS IWC)  
+  
     w2i always, im usually offtab or afk
-
-    hannibal fandom interact with extreme care, especially shippers
-
-    other fandoms pls interact =)
 
     dont copy my ponies or take inspo! (who even would do that)
 
@@ -23,7 +20,7 @@
 
     ------------------------------------------------DNI list--------------------------------------------------------
     1. anyone with hateful ideologies: racists, homophobes, xenophobes
-    2. pro/dark shippers
+    2. pro/dark/com shippers
     3. hazbin/helluva fans (friends r ok)
     4. maga/trump/ICE supporters
     5. mental disorder fakers/romaticizers
