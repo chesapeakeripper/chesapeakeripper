@@ -12,6 +12,8 @@
   
     w2i always, im usually offtab or afk
 
+    INTJ/ENTJ
+
     dont copy my ponies or take inspo! (who even would do that)
 
     c+h only if fandom or friend !!
