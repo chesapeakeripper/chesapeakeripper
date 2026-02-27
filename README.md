@@ -57,7 +57,7 @@ media -> hannibal, fallout, severance, black mirror, pluribus, house md, IT, esc
 
 hobbies-> drawing, collecting, watching movies & tv shows
 
-kins-> rory gilmore, stephanie harper
+kins-> rory gilmore, stephanie harper, V
 
 
 
