@@ -8,7 +8,7 @@
 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------
-  hi! im rory, im brazilian and a minor (DO NOT GROOM) (ADULTS IWC)  
+  hi! im rory, im brazilian and a minor (DO NOT GROOM)
   
     w2i always, im usually offtab or afk
 
@@ -18,14 +18,12 @@
 
     c+h only if fandom or friend !!
 
-    im young-ish so if you have like -16 dnis or something like that ill respect that!!
-
     btw sorry if ive like ,, never been online anymore, i have a reallyyyy rough schedule
 
     ------------------------------------------------DNI list--------------------------------------------------------
+    16+ iwec pls !!
     1. anyone with hateful ideologies: racists, homophobes, xenophobes
     2. pro/dark/com shippers
-    3. hazbin/helluva fans (friends r ok)
     4. maga/trump/ICE supporters
     5. mental disorder fakers/romaticizers
     if you're on this list and try to continuedly talk to me i will block you temporarely. or permanently if 
