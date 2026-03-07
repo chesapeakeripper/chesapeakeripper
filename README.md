@@ -18,6 +18,8 @@
 
     c+h only if fandom or friend !!
 
+    im young-ish so if you have like -16 dnis or something like that ill respect that!!
+
     btw sorry if ive like ,, never been online anymore, i have a reallyyyy rough schedule
 
     ------------------------------------------------DNI list--------------------------------------------------------
