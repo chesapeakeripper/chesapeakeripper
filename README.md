@@ -26,7 +26,6 @@
     3. hazbin/helluva fans (friends r ok)
     4. maga/trump/ICE supporters
     5. mental disorder fakers/romaticizers
-    6. serious yumeshippers
     if you're on this list and try to continuedly talk to me i will block you temporarely. or permanently if 
     you're really annoying.
 
