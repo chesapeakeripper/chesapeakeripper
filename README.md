@@ -8,7 +8,7 @@
 
 
 ---------------------------------------------------------------------------------------------------------------------------------------------
-  hi! im rory, im brazilian and a minor (DO NOT GROOM)
+  hi! im rory, im brazilian and a minor
   
     w2i always, im usually offtab or afk
 
@@ -19,6 +19,15 @@
     c+h only if fandom or friend !!
 
     btw sorry if ive like ,, never been online anymore, i have a reallyyyy rough schedule
+
+                                        -======= interact info =======-
+
+                                🔴 - offtab, whisper or i won't see your message
+                                🟢 - talking with friends, active
+                                🌙 - dniuf or iwec
+                                💬 - prob asking for something or int
+                                🎭 - i never use this i hate roleplays
+                                
 
     ------------------------------------------------DNI list--------------------------------------------------------
     16+ iwec pls !!
