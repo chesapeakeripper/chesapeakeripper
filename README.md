@@ -7,7 +7,7 @@
 
 <img width="105" height="19" alt="Captura de tela 2026-01-03 150756" src="https://github.com/user-attachments/assets/bfa13a85-91bc-4907-ac8a-3b2fa3347553" /><img width="105" height="19" alt="Captura de tela 2026-01-03 150756" src="https://github.com/user-attachments/assets/805669c4-bfb6-4cdd-8cca-4927b6946305" />
 <img width="105" height="19" alt="Captura de tela 2026-01-03 150756" src="https://github.com/user-attachments/assets/1c49ae6f-82fe-4bd8-a6e6-4d68adb61a4c" />
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=chesapeakeripper&color=800000&label=Victims)
+![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=chesapeakeripper&color=800000&label=viewers)
 
 
 
@@ -16,7 +16,6 @@
 
          
 
-<img width="695" height="367" alt="image" src="https://github.com/user-attachments/assets/8777b231-9567-4485-98f5-ab638687d4d1" /><img width="105" height="19" alt="image" src="https://github.com/user-attachments/assets/6b04e83c-5d4e-4392-a814-17e456f19770" />
 ![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/2bf5b872-2b88-4434-aadb-ba7ce18fd20e)![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/2bf5b872-2b88-4434-aadb-ba7ce18fd20e)![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/2bf5b872-2b88-4434-aadb-ba7ce18fd20e)![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/2bf5b872-2b88-4434-aadb-ba7ce18fd20e)![26b7ce3d6b13ad203707f06ffb57334b0e2b2cbc](https://github.com/user-attachments/assets/2bf5b872-2b88-4434-aadb-ba7ce18fd20e)
 
 
