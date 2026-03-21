@@ -18,6 +18,8 @@
 
 hannibal fandom iwec
 
+dni yumeshippers proshippers darkshippers pro harrasment
+dni indie animation fans outlast fans hazbin/helluva fans
 
 
 
