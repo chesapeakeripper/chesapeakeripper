@@ -14,15 +14,16 @@
 
 
 
-![68747470733a2f2f692e706f7374696d672e63632f486a4e76594859462f54756d626c722d6c2d323335383439323837343930303636342e676966](https://github.com/user-attachments/assets/817f8c02-d793-41cb-a6e5-bbd4fdab368a)
+![68747470733a2f2f692e706f7374696d672e63632f486a4e76594859462f54756d626c722d6c2d323335383439323837343930303636342e676966](https://github.com/user-attachments/assets/817f8c02-d793-41cb-a6e5-bbd4fdab368a)<img width="99" height="55" alt="567285789-5c65d423-2137-4ea8-83e7-90f6a002694c" src="https://github.com/user-attachments/assets/b8134070-fee4-4be4-8c0a-8a7f5a057ee4" />
+
 
 hannibal fandom iwec
 
 dni yumeshippers proshippers darkshippers pro harrasment
-dni indie animation fans outlast fans (uf) hazbin/helluva fans (uf)
+dni outlast fans (uf) hazbin/helluva fans (uf)
 
-![516928225-fb1e27e8-db3e-49a4-9f10-b61ff8675505](https://github.com/user-attachments/assets/9969834a-3d9c-40bc-9d78-1901aca38370)
 
+![567286851-5ae7a957-db0e-4331-952a-45c45f95492d](https://github.com/user-attachments/assets/b3588098-9cee-4694-91cf-13a9b8e8cc96)
 
 
 
