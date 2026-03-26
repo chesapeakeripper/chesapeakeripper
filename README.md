@@ -17,7 +17,7 @@
 ![68747470733a2f2f692e706f7374696d672e63632f486a4e76594859462f54756d626c722d6c2d323335383439323837343930303636342e676966](https://github.com/user-attachments/assets/817f8c02-d793-41cb-a6e5-bbd4fdab368a)<img width="99" height="55" alt="567285789-5c65d423-2137-4ea8-83e7-90f6a002694c" src="https://github.com/user-attachments/assets/b8134070-fee4-4be4-8c0a-8a7f5a057ee4" />
 
 
-hannibal fandom iwec
+hannibal fandom iwec you all are on the LAST SHARD OF THIN ICE
 
 dni yumeshippers proshippers darkshippers pro harrasment
 dni hazbin/helluva fans (uf)
