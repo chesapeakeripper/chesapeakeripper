@@ -1,5 +1,4 @@
-profile currently down for mental health reasons , please iwec if you can , if youre in any of these fandoms dni : hannibal , outlast , forsaken , dandys world , indie animations ,, if youre a friend js dont talk about these things uid , its absolutely nothing personal
-
+profile currently down for mental health reasons , please iwec if you can 
 
 
 
