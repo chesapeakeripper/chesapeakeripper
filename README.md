@@ -14,7 +14,11 @@ she/her ![IMG-7013](https://github.com/user-attachments/assets/dffa3581-f58a-41a
 
 
   
-. . . . . . . HUGE hannibal (mainly s1) fan ︵ ![IMG_4257](https://github.com/user-attachments/assets/17e12acc-3899-4e84-a49f-f20848acd19e) ︵ other interests are fallout, horror movies, pluribus and black mirror 
+. . . . . . . HUGE hannibal (mainly s1) fan ︵ ![IMG_4257](https://github.com/user-attachments/assets/17e12acc-3899-4e84-a49f-f20848acd19e) ︵ other interests are fallout, horror movies, pluribus and black mirror
+
+if youre a hardcore hannigram shipper please iwec as it makes me a bit uncomfortable ![4fdd9e6b](https://github.com/user-attachments/assets/d4569875-2003-4cdc-aa18-74ff188c9ce1) ︶ ︵︶ ︵ no dni, just don't be weird ![tumblr_c548b209b422cbd0a41e96844b7c69ec_71c5cfef_75](https://github.com/user-attachments/assets/853db26d-e18a-4bfc-a81e-b131e13b29a7)
+
+
 
 
 
