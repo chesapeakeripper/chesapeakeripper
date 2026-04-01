@@ -1,5 +1,5 @@
 revamping :O
-<img width="748" height="660" alt="image" src="https://github.com/user-attachments/assets/81b2fa9e-5b26-4f9c-b357-5099adb8fe77" />
+<img width="498" height="880" alt="image" src="https://github.com/user-attachments/assets/81b2fa9e-5b26-4f9c-b357-5099adb8fe77" />
 
 
 
