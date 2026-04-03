@@ -28,7 +28,7 @@ she/her ![IMG-7013](https://github.com/user-attachments/assets/dffa3581-f58a-41a
 . . . . . . . HUGE hannibal nbc (mainly s1) fan ︵ ![IMG_4257](https://github.com/user-attachments/assets/17e12acc-3899-4e84-a49f-f20848acd19e) ︵ other interests are fallout, horror movies, pluribus and black mirror
 
 if youre a hardcore hannigram shipper please iwc as it makes me a bit uncomfortable ![tumblr_24aab631db7263de7fc81bb6433bec6f_7c0602cf_1280](https://github.com/user-attachments/assets/50bb67b1-f54e-4f34-a303-0bcc601908fc)°▪︎`.
-︶ ︵︶ ︵ no dni, just don't be weird & if youre friends w weird people dni too ![IMG_4186](https://github.com/user-attachments/assets/bf709fa0-0f2c-4397-90a2-938728ab5240)
+︶ ︵︶ ︵ no dni, just don't be weird or friends with weirdos ![IMG_4186](https://github.com/user-attachments/assets/bf709fa0-0f2c-4397-90a2-938728ab5240)
 
 <p align="center">
  <img width="737" height="236" alt="image" src="https://github.com/user-attachments/assets/5fe0e048-2315-46c6-820b-5a8c96c7bbd3" />
