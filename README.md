@@ -34,7 +34,27 @@ if youre a hardcore hannigram shipper please iwc as it makes me a bit uncomforta
  <img width="737" height="236" alt="image" src="https://github.com/user-attachments/assets/5fe0e048-2315-46c6-820b-5a8c96c7bbd3" />
 
 </p>
+<details>
+  <summary>blinkies + stamps</summary>
+ stuff from my fandoms and other media i like !
+ 
+<img width="99" height="55" alt="567285789-5c65d423-2137-4ea8-83e7-90f6a002694c" src="https://github.com/user-attachments/assets/e47794d3-f2ff-4ea6-99d1-0361697cebc9" /> <img width="99" height="55" alt="5567297439-f886b95f-c365-48ff-9996-0495e070583a"  src="https://github.com/user-attachments/assets/b7cc8387-1c9a-429b-8a72-f54771de42a9" /><img width="99" height="56" alt="f54" src="https://github.com/user-attachments/assets/6b0383fb-bac7-49e8-be8a-84aa8083fc5a" /><img width="99" height="56" alt="f55" src="https://github.com/user-attachments/assets/b0c084b0-6816-445a-8b99-a5a101a8ab62" /><img width="99" height="56" alt="f56" src="https://github.com/user-attachments/assets/b73751ee-db77-4553-80a3-1bad175b3906" />![f16](https://github.com/user-attachments/assets/058028eb-962c-45bf-9fc0-3f86b4a3dc14)
+<img width="99" height="55" alt="b44" src="https://github.com/user-attachments/assets/0d5723cb-2bb5-43e8-888c-9066491fd209"/>![75080248_Y08](https://github.com/user-attachments/assets/3d94de7e-9fda-42e3-bf53-f90b271eefd3)
 
+
+
+
+
+![e11](https://github.com/user-attachments/assets/ea124732-168d-4336-a9eb-53128776b105)![0174-hal9000](https://github.com/user-attachments/assets/fc1db487-a008-413c-92d3-85306e06c0c4)![18582527](https://github.com/user-attachments/assets/75202d32-67d3-4e0c-b8d9-9a8797d68068)
+
+
+
+
+
+
+
+
+</details>
 
 
 
