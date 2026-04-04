@@ -19,7 +19,8 @@
 
 <img width="20" height="20" alt="dcjlg3" src="https://github.com/user-attachments/assets/193217d8-7d82-42de-8da9-b64e08eb3928" /> rory / scoliosis ︵ ![1011787576891428874](https://github.com/user-attachments/assets/4fdf7418-f695-48d2-82c7-9120654235f9)
 she/her ![IMG-7013](https://github.com/user-attachments/assets/dffa3581-f58a-41a3-9417-9fabc8dd6469) cishet woman ︵︵︵
-  ![1026877051640238163](https://github.com/user-attachments/assets/6402598c-b1b4-4fcf-ae78-2584f893c4e6) .　˚　. brazillian ![BF5-B1-CA9-AB2-E-4-C58-87-F3-7387-F90-CE89-C](https://github.com/user-attachments/assets/c53fb949-280f-4a54-8831-6b2760467ecb)  ͝𖣦͝ ⏝𓏵 05/06  ![IMG-9954](https://github.com/user-attachments/assets/1c069437-f0f5-4722-98cc-2b9ffd10ad38) INTP ︵︵︵︵︵︵ ![tumblr_555ad56a017a0b827d332aed08eacffd_e3093b09_75](https://github.com/user-attachments/assets/9baf75d7-59f3-4db0-95f0-f2435ffcce63)
+  ![1026877051640238163](https://github.com/user-attachments/assets/6402598c-b1b4-4fcf-ae78-2584f893c4e6) .　˚　. brazillian ![BF5-B1-CA9-AB2-E-4-C58-87-F3-7387-F90-CE89-C](https://github.com/user-attachments/assets/c53fb949-280f-4a54-8831-6b2760467ecb)  ͝𖣦͝ ⏝𓏵 05/06  ![IMG-9954](https://github.com/user-attachments/assets/1c069437-f0f5-4722-98cc-2b9ffd10ad38) INTP
+︵︵︵︵︵︵ ![tumblr_555ad56a017a0b827d332aed08eacffd_e3093b09_75](https://github.com/user-attachments/assets/9baf75d7-59f3-4db0-95f0-f2435ffcce63)
 
 
 
@@ -39,13 +40,16 @@ if youre a hardcore hannigram shipper please iwc as it makes me a bit uncomforta
  stuff from my fandoms and other media i like !
  
 <img width="99" height="55" alt="567285789-5c65d423-2137-4ea8-83e7-90f6a002694c" src="https://github.com/user-attachments/assets/e47794d3-f2ff-4ea6-99d1-0361697cebc9" /> <img width="99" height="55" alt="5567297439-f886b95f-c365-48ff-9996-0495e070583a"  src="https://github.com/user-attachments/assets/b7cc8387-1c9a-429b-8a72-f54771de42a9" /><img width="99" height="56" alt="f54" src="https://github.com/user-attachments/assets/6b0383fb-bac7-49e8-be8a-84aa8083fc5a" /><img width="99" height="56" alt="f55" src="https://github.com/user-attachments/assets/b0c084b0-6816-445a-8b99-a5a101a8ab62" /><img width="99" height="56" alt="f56" src="https://github.com/user-attachments/assets/b73751ee-db77-4553-80a3-1bad175b3906" />![f16](https://github.com/user-attachments/assets/058028eb-962c-45bf-9fc0-3f86b4a3dc14)
-<img width="99" height="55" alt="b44" src="https://github.com/user-attachments/assets/0d5723cb-2bb5-43e8-888c-9066491fd209"/>![75080248_Y08](https://github.com/user-attachments/assets/3d94de7e-9fda-42e3-bf53-f90b271eefd3)
+<img width="99" height="55" alt="b44" src="https://github.com/user-attachments/assets/0d5723cb-2bb5-43e8-888c-9066491fd209"/>![75080248_Y08](https://github.com/user-attachments/assets/3d94de7e-9fda-42e3-bf53-f90b271eefd3)<img width="99" height="56" alt="tumblr_pgwwh8SbvI1xzybrpo3_100" src="https://github.com/user-attachments/assets/e6ddc801-6211-47da-8f53-4db3729c14bb" />
 
 
 
 
 
-![e11](https://github.com/user-attachments/assets/ea124732-168d-4336-a9eb-53128776b105)![0174-hal9000](https://github.com/user-attachments/assets/fc1db487-a008-413c-92d3-85306e06c0c4)![18582527](https://github.com/user-attachments/assets/75202d32-67d3-4e0c-b8d9-9a8797d68068)
+
+![e11](https://github.com/user-attachments/assets/ea124732-168d-4336-a9eb-53128776b105)![friday-the-13th](https://github.com/user-attachments/assets/ad19b92e-f7e6-46f9-9d8b-6337d96fb68f)![scream](https://github.com/user-attachments/assets/8f9423ef-1500-49fc-8d0f-9afdd53f2827)
+
+
 
 
 
