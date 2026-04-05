@@ -40,7 +40,8 @@ if youre a hardcore hannigram shipper please iwc as it makes me a bit uncomforta
  stuff from my fandoms and other media i like !
  
 <img width="99" height="55" alt="567285789-5c65d423-2137-4ea8-83e7-90f6a002694c" src="https://github.com/user-attachments/assets/e47794d3-f2ff-4ea6-99d1-0361697cebc9" /> <img width="99" height="55" alt="5567297439-f886b95f-c365-48ff-9996-0495e070583a"  src="https://github.com/user-attachments/assets/b7cc8387-1c9a-429b-8a72-f54771de42a9" /><img width="99" height="56" alt="f54" src="https://github.com/user-attachments/assets/6b0383fb-bac7-49e8-be8a-84aa8083fc5a" /><img width="99" height="56" alt="f55" src="https://github.com/user-attachments/assets/b0c084b0-6816-445a-8b99-a5a101a8ab62" /><img width="99" height="56" alt="f56" src="https://github.com/user-attachments/assets/b73751ee-db77-4553-80a3-1bad175b3906" />![f16](https://github.com/user-attachments/assets/058028eb-962c-45bf-9fc0-3f86b4a3dc14)
-<img width="99" height="55" alt="b44" src="https://github.com/user-attachments/assets/0d5723cb-2bb5-43e8-888c-9066491fd209"/>![75080248_Y08](https://github.com/user-attachments/assets/3d94de7e-9fda-42e3-bf53-f90b271eefd3)<img width="99" height="56" alt="tumblr_pgwwh8SbvI1xzybrpo3_100" src="https://github.com/user-attachments/assets/e6ddc801-6211-47da-8f53-4db3729c14bb" />![516928225-fb1e27e8-db3e-49a4-9f10-b61ff8675505](https://github.com/user-attachments/assets/65e5efbe-6c56-4ac5-a56e-00828a511e2d)
+<img width="99" height="55" alt="b44" src="https://github.com/user-attachments/assets/0d5723cb-2bb5-43e8-888c-9066491fd209"/>![75080248_Y08](https://github.com/user-attachments/assets/3d94de7e-9fda-42e3-bf53-f90b271eefd3)<img width="99" height="56" alt="tumblr_pgwwh8SbvI1xzybrpo3_100" src="https://github.com/user-attachments/assets/e6ddc801-6211-47da-8f53-4db3729c14bb" />![516928225-fb1e27e8-db3e-49a4-9f10-b61ff8675505](https://github.com/user-attachments/assets/65e5efbe-6c56-4ac5-a56e-00828a511e2d)![550635998-33d6d26a-a112-4f85-ae1e-bd94825f74dc](https://github.com/user-attachments/assets/d078564b-98db-4082-833c-9a519b63ac3b)
+
 
 
 
@@ -49,7 +50,9 @@ if youre a hardcore hannigram shipper please iwc as it makes me a bit uncomforta
 
 
 ![teste](https://github.com/user-attachments/assets/632a2c97-0f46-4985-8519-a82a75a505dd)
-![e11](https://github.com/user-attachments/assets/ea124732-168d-4336-a9eb-53128776b105)![friday-the-13th](https://github.com/user-attachments/assets/ad19b92e-f7e6-46f9-9d8b-6337d96fb68f)![scream](https://github.com/user-attachments/assets/8f9423ef-1500-49fc-8d0f-9afdd53f2827)![teste2](https://github.com/user-attachments/assets/708964df-4c6e-4e20-84fa-16c034c246e3)![teste3](https://github.com/user-attachments/assets/5777c860-0b27-4850-9fde-1b21dfbde9e2)
+![e11](https://github.com/user-attachments/assets/ea124732-168d-4336-a9eb-53128776b105)![friday-the-13th](https://github.com/user-attachments/assets/ad19b92e-f7e6-46f9-9d8b-6337d96fb68f)![scream](https://github.com/user-attachments/assets/8f9423ef-1500-49fc-8d0f-9afdd53f2827)![teste2](https://github.com/user-attachments/assets/708964df-4c6e-4e20-84fa-16c034c246e3)![teste3](https://github.com/user-attachments/assets/5777c860-0b27-4850-9fde-1b21dfbde9e2)![550642113-49516a19-9df0-4dcf-98ba-759727547657](https://github.com/user-attachments/assets/b0c5c44f-740e-4987-a36b-42dae2cb76c2)![550653345-df954815-3670-4f95-ada5-e89d04f60bc7](https://github.com/user-attachments/assets/defdd039-a6b2-40d9-aa5f-726a077b04ca)
+
+
 
 
 
