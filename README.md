@@ -73,11 +73,15 @@ if youre a hardcore hannigram shipper please iwc as it makes me a bit uncomforta
 
 
 
+</p>
+<details>
+  <summary>ignore this hehe</summary>
+
+![resr](https://github.com/user-attachments/assets/98b21e15-114c-4ea1-955b-56844201c27a)
 
 
 
-
-
+</details>
               
               
                            
