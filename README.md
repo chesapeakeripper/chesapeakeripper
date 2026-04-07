@@ -75,10 +75,8 @@ if youre a hardcore hannigram shipper please iwc as it makes me a bit uncomforta
 
 </p>
 <details>
-  <summary>ignore this hehe</summary>
-
-![resr](https://github.com/user-attachments/assets/98b21e15-114c-4ea1-955b-56844201c27a)
-
+  <summary>dni + info</summary>
+if you see a user with the google handle ''Леша Гробовщик'' underneath their name please watch out for them, they have been harrassing me and my friends for a few months, please report them if you can
 
 
 </details>
