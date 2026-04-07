@@ -76,7 +76,7 @@ if youre a hardcore hannigram shipper please iwc as it makes me a bit uncomforta
 </p>
 <details>
   <summary>dni + info</summary>
-if you see a user with the google handle ''Леша Гробовщик'' underneath their name please watch out for them, he has been harrassing me and my friends for a few months, please report him if you can, if i see you interacting with him or his friends you will be blocked
+if you see a user with the google handle ''Леша Гробовщик'' underneath his name please watch out for him, he has been harrassing me and my friends for a few months, please report him if you can, if i see you interacting with him or his friends you will be blocked permanently
 
 
 </details>
