@@ -35,7 +35,8 @@ she/her ![IMG-7013](https://github.com/user-attachments/assets/dffa3581-f58a-41a
  <img width="737" height="236" alt="image" src="https://github.com/user-attachments/assets/5fe0e048-2315-46c6-820b-5a8c96c7bbd3" />
 
 </p>
-<details>
+<de![567295441-89cff11b-a882-47ce-b05f-35262b0d8330](https://github.com/user-attachments/assets/6f809d0d-ee6a-4524-8c0e-76d8cc429bd0)
+tails>
   <summary>blinkies + stamps</summary>
  stuff from my fandoms and other media i like !
  
@@ -49,6 +50,8 @@ she/her ![IMG-7013](https://github.com/user-attachments/assets/dffa3581-f58a-41a
 
 
 
+![567286511-787ca0a5-90c7-4246-ada1-0c3f6ac23b91](https://github.com/user-attachments/assets/9e913a34-1aeb-4145-86df-7844161c3c2b)
+![567295441-89cff11b-a882-47ce-b05f-35262b0d8330](https://github.com/user-attachments/assets/a61b59fe-3325-4e11-95fd-7174f36b8b6a)
 ![teste](https://github.com/user-attachments/assets/632a2c97-0f46-4985-8519-a82a75a505dd)
 ![e11](https://github.com/user-attachments/assets/ea124732-168d-4336-a9eb-53128776b105)![friday-the-13th](https://github.com/user-attachments/assets/ad19b92e-f7e6-46f9-9d8b-6337d96fb68f)![scream](https://github.com/user-attachments/assets/8f9423ef-1500-49fc-8d0f-9afdd53f2827)![teste2](https://github.com/user-attachments/assets/708964df-4c6e-4e20-84fa-16c034c246e3)![teste3](https://github.com/user-attachments/assets/5777c860-0b27-4850-9fde-1b21dfbde9e2)![550642113-49516a19-9df0-4dcf-98ba-759727547657](https://github.com/user-attachments/assets/b0c5c44f-740e-4987-a36b-42dae2cb76c2)![550653345-df954815-3670-4f95-ada5-e89d04f60bc7](https://github.com/user-attachments/assets/defdd039-a6b2-40d9-aa5f-726a077b04ca)
 
