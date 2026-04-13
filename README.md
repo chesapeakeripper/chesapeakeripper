@@ -35,8 +35,7 @@ she/her ![IMG-7013](https://github.com/user-attachments/assets/dffa3581-f58a-41a
  <img width="737" height="236" alt="image" src="https://github.com/user-attachments/assets/5fe0e048-2315-46c6-820b-5a8c96c7bbd3" />
 
 </p>
-<de![567295441-89cff11b-a882-47ce-b05f-35262b0d8330](https://github.com/user-attachments/assets/6f809d0d-ee6a-4524-8c0e-76d8cc429bd0)
-tails>
+<details>
   <summary>blinkies + stamps</summary>
  stuff from my fandoms and other media i like !
  
