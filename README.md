@@ -10,7 +10,7 @@
 
 
 <p align="center">
-<img width="498" height="870" alt="image" src="https://github.com/user-attachments/assets/81b2fa9e-5b26-4f9c-b357-5099adb8fe77" />
+<img width="498" height="480" alt="image" src="https://github.com/user-attachments/assets/81b2fa9e-5b26-4f9c-b357-5099adb8fe77" />
 </p>
 
 ![IMG_4184](https://github.com/user-attachments/assets/556fca59-06ca-465b-8c79-7e572df216ca) ![IMG_1898](https://github.com/user-attachments/assets/f4520f9a-02e3-4508-b7ea-a62d499d8839)
@@ -39,7 +39,7 @@ she/her ![IMG-7013](https://github.com/user-attachments/assets/dffa3581-f58a-41a
   <summary>blinkies + stamps</summary>
  stuff from my fandoms and other media i like !
  
-<img width="99" height="55" alt="567285789-5c65d423-2137-4ea8-83e7-90f6a002694c" src="https://github.com/user-attachments/assets/e47794d3-f2ff-4ea6-99d1-0361697cebc9" /> <img width="99" height="55" alt="5567297439-f886b95f-c365-48ff-9996-0495e070583a"  src="https://github.com/user-attachments/assets/b7cc8387-1c9a-429b-8a72-f54771de42a9" /><img width="99" height="56" alt="f54" src="https://github.com/user-attachments/assets/6b0383fb-bac7-49e8-be8a-84aa8083fc5a" /><img width="99" height="56" alt="f55" src="https://github.com/user-attachments/assets/b0c084b0-6816-445a-8b99-a5a101a8ab62" /><img width="99" height="56" alt="f56" src="https://github.com/user-attachments/assets/b73751ee-db77-4553-80a3-1bad175b3906" />![f16](https://github.com/user-attachments/assets/058028eb-962c-45bf-9fc0-3f86b4a3dc14)
+<img width="99" height="55" alt="567285789-5c65d423-2137-4ea8-83e7-90f6a002694c" src="https://github.com/user-attachments/assets/e47794d3-f2ff-4ea6-99d1-0361697cebc9" /><img width="99" height="55" alt="5567297439-f886b95f-c365-48ff-9996-0495e070583a"  src="https://github.com/user-attachments/assets/b7cc8387-1c9a-429b-8a72-f54771de42a9" /><img width="99" height="56" alt="f54" src="https://github.com/user-attachments/assets/6b0383fb-bac7-49e8-be8a-84aa8083fc5a" /><img width="99" height="56" alt="f55" src="https://github.com/user-attachments/assets/b0c084b0-6816-445a-8b99-a5a101a8ab62" /><img width="99" height="56" alt="f56" src="https://github.com/user-attachments/assets/b73751ee-db77-4553-80a3-1bad175b3906" />![f16](https://github.com/user-attachments/assets/058028eb-962c-45bf-9fc0-3f86b4a3dc14)
 <img width="99" height="55" alt="b44" src="https://github.com/user-attachments/assets/0d5723cb-2bb5-43e8-888c-9066491fd209"/>![75080248_Y08](https://github.com/user-attachments/assets/3d94de7e-9fda-42e3-bf53-f90b271eefd3)<img width="99" height="56" alt="tumblr_pgwwh8SbvI1xzybrpo3_100" src="https://github.com/user-attachments/assets/e6ddc801-6211-47da-8f53-4db3729c14bb" />![516928225-fb1e27e8-db3e-49a4-9f10-b61ff8675505](https://github.com/user-attachments/assets/65e5efbe-6c56-4ac5-a56e-00828a511e2d)![550635998-33d6d26a-a112-4f85-ae1e-bd94825f74dc](https://github.com/user-attachments/assets/d078564b-98db-4082-833c-9a519b63ac3b)
 
 
