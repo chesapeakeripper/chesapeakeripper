@@ -38,11 +38,11 @@ she/her ![IMG-7013](https://github.com/user-attachments/assets/dffa3581-f58a-41a
 <details>
   <summary>blinkies + stamps</summary>
  stuff from my fandoms and other media i like !
- 
-<img width="99" height="55" alt="567285789-5c65d423-2137-4ea8-83e7-90f6a002694c" src="https://github.com/user-attachments/assets/e47794d3-f2ff-4ea6-99d1-0361697cebc9" />
-<img width="99" height="55" alt="5567297439-f886b95f-c365-48ff-9996-0495e070583a"  src="https://github.com/user-attachments/assets/b7cc8387-1c9a-429b-8a72-f54771de42a9" /><img width="99" height="56" alt="f54" src="https://github.com/user-attachments/assets/6b0383fb-bac7-49e8-be8a-84aa8083fc5a" /><img width="99" height="56" alt="f55" src="https://github.com/user-attachments/assets/b0c084b0-6816-445a-8b99-a5a101a8ab62" /><img width="99" height="56" alt="f56" src="https://github.com/user-attachments/assets/b73751ee-db77-4553-80a3-1bad175b3906" /><img width="99" height="56" alt="550635998-33d6d26a-a112-4f85-ae1e-bd94825f74dc" src="https://github.com/user-attachments/assets/ae7ce0b7-32d6-4e39-8f37-5eeaff63243a" />
 
-![75080248_Y08](https://github.com/user-attachments/assets/3d94de7e-9fda-42e3-bf53-f90b271eefd3)<img width="99" height="56" alt="tumblr_pgwwh8SbvI1xzybrpo3_100" src="https://github.com/user-attachments/assets/e6ddc801-6211-47da-8f53-4db3729c14bb" />
+<img align="left" width="99" height="56" alt="gif2" src="https://github.com/user-attachments/assets/3ac67b49-e4aa-4e29-892a-70d1572b3872" /><img align="left" width="99" height="56" alt="gif1" src="https://github.com/user-attachments/assets/a27328ae-a0d0-4964-9bd7-53d83e42ec33" /><img align="left" width="99" height="55" alt="5567297439-f886b95f-c365-48ff-9996-0495e070583a"  src="https://github.com/user-attachments/assets/b7cc8387-1c9a-429b-8a72-f54771de42a9" /><img align="left" width="99" height="56" alt="f54" src="https://github.com/user-attachments/assets/6b0383fb-bac7-49e8-be8a-84aa8083fc5a" /><img align="left" width="99" height="56" alt="573841167-b0c084b0-6816-445a-8b99-a5a101a8ab62" src="https://github.com/user-attachments/assets/dab5a08e-fdef-4870-99d0-1707d54c5424" /><img align="left" width="99" height="56" alt="573841175-b73751ee-db77-4553-80a3-1bad175b3906" src="https://github.com/user-attachments/assets/ecab49fa-ff96-4e7c-bced-d80ddfd6a614" />
+
+
+
 
 
 
