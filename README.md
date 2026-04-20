@@ -29,7 +29,7 @@ she/her ![IMG-7013](https://github.com/user-attachments/assets/dffa3581-f58a-41a
 . . . . . . . HUGE hannibal nbc (and hannibal lecter overall) fan ︵ ![IMG_4257](https://github.com/user-attachments/assets/17e12acc-3899-4e84-a49f-f20848acd19e) ︵ other interests are fallout, horror movies, pluribus and black mirror
 
  ![tumblr_24aab631db7263de7fc81bb6433bec6f_7c0602cf_1280](https://github.com/user-attachments/assets/50bb67b1-f54e-4f34-a303-0bcc601908fc)°▪︎`.
-︶ ︵︶ ︵ basic dni criteria (proshippers, homophobes, etc) ![IMG_4186](https://github.com/user-attachments/assets/bf709fa0-0f2c-4397-90a2-938728ab5240)
+︶ ︵︶ ︵ basic dni criteria (proshippers, homophobes, etc) ![IMG_4186](https://github.com/user-attachments/assets/bf709fa0-0f2c-4397-90a2-938728ab5240) ︵︵︵ 19+ iwec
 
 <p align="center">
  <img width="737" height="236" alt="image" src="https://github.com/user-attachments/assets/5fe0e048-2315-46c6-820b-5a8c96c7bbd3" />
