@@ -76,13 +76,7 @@ she/her ![IMG-7013](https://github.com/user-attachments/assets/dffa3581-f58a-41a
 
 
 
-</p>
-<details>
-  <summary>please read!!</summary>
-if you see a user with the google handle ''Леша Гробовщик'' underneath his name please watch out for him, he has been harrassing me and my friends for a few months, please report him if you can, if i see you interacting with him or his friends you will be blocked permanently
 
-
-</details>
               
               
                            
